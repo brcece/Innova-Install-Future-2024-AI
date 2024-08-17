@@ -1,0 +1,1 @@
+Proje hakkında ayrıntılara [Innova Install Future 2024 Hackathon Report – Yapay Zeka .docx](https://github.com/user-attachments/files/16643228/Innova.Install.Future.2024.Hackathon.Report.Yapay.Zeka.docx) dosyasından ulaşabilirsiniz.
